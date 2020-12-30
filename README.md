@@ -1,1 +1,0 @@
-# trendkorea2021
